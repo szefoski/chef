@@ -1,6 +1,6 @@
 ### Chleb pszenny razowy na zakwasie żytnim
 #### Zaczyn
-* 150g mąki pszennej typ 480 lub 500
+* 150g mąki pszennej typ 750
 * 100g mąki przennej razowej
 * 100g zakwasu
 * 200g wody
