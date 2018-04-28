@@ -45,4 +45,20 @@ Wszystko wymieszać, wody dodawać tyle aby ciasto było gęste ale dało się m
 
 
 ### Ten
+### Mieszany
+
+* 250 g zakwasu żytniego
+* rózne mąki  400g
+* 100g nasion, otrębów
+* 300 ml wody
+* 2 łyżeczki soli
+
+Połączyć wszystko, włożyć do piekarnika z zapaloną lampką na minimum 5h.
+Do zimnego piekarnika włożyć chleb i rozgrzać piekarnik do 220 stopni C iec 10 minut, nastepnie jeszcze 20 minut 160 C, nastepnie 20 minut - 30 minut piec bez foremek
 https://www.youtube.com/watch?v=M7eJuwdxuBM
+
+### Pszenny
+
+Włożyć do piekarnika na godzine z zapaloną lampką.
+Po godzienie wyciągnąć i odgazować
+W
