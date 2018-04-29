@@ -4,3 +4,4 @@
 * https://www.tefal.pl/sklep-z-akcesoriami/Sk%C5%82adana-forma-do-ciasta-24-cm-Proflex-J4094815/a/2100098051
 
 * https://www.garneczki.pl/produkt/forma-silikonowa-do-chalki-chalka-38-x-15-cm,3692
+* https://kuchnianawidelcu.pl/product-pol-1128-Silikonowa-podluzna-falista-forma-na-ciasto-o-dlugosci-32-cm-TESCOMA-DELICIA-SILICONE.html
