@@ -3,7 +3,7 @@
 * 3-4 litry wody zagotować
 * Wrzucic wyplukane mieso z koscmi
 * troche soli
-* pół łyżeczki vegety
+* 1,5 łyżeczki vegety
 * pieprz ziarnisty 10 ziarenek
 * 10 ziarenek ziela angielskiegoo
 * 5 lisci laurowych
