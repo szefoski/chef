@@ -12,4 +12,4 @@
 * czerwone curry
 * pieprz cytrynowy
 
-Kurczaka dodatkowo można polać na panierce sosem sojowym (najlepeij ciemnym)
+Pierś Kurczaka ponakrajać w talarki, posmarować marynatą, przekładać talarkami gruszki i jabłka na przemian. Dodatkowo można polać na panierce sosem sojowym (najlepeij ciemnym).
