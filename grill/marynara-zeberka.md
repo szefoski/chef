@@ -13,7 +13,7 @@
 * 10 ml - rozmarynu w proszku
 
 #### Mała porcja:
-#### Przyprawa
+#### Marynata
 * 45 ml - cukru brązowego
 * 45 ml - białego cukru
 * 30 ml - papryki słodkiej
