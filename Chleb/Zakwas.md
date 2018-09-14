@@ -1,3 +1,7 @@
+* https://babywkuchni.com.pl/zakwas-uspienie-na-duzej-i-reaktywacja/
+* https://babywkuchni.com.pl/zakwas-zytni-wg-hamelmana/
+* https://babywkuchni.com.pl/zakwas-zytni-ii/
+
 
 ### Dokarmianie zakwasu stosjącego w lodówce
 1. Wyciągnąć zakwas z lodówki i pozostawić na 2h aby się ogrzał
