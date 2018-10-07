@@ -1,4 +1,6 @@
 ---
+![Alt text](http://www.kwestiasmaku.com/sites/kwestiasmaku.com/files/zupa_krem_pomidorowa.jpg)
+---
 ## Składniki
 
 - 5 łyżek oliwy extra vergine
