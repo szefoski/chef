@@ -1,5 +1,5 @@
 
-Ryż brązowy:
+### Ryż brązowy:
 
 Na jedną szklankę ryżu brązowego 2,5 szklanki wody.
 Przed gotowaniem opłukać pod zimną wodą.
