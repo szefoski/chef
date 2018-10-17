@@ -4,8 +4,8 @@
 
 ---
 
-### Składniki:
-- 250 gram margaryny w temperaturze pokojowej
+## Składniki:
+- 250 gram margaryny w temperaturze pokojowej (np Kasia)
 - 6 jaj
 - 300 ml szklanka kartoflanki
 - 300 ml szklanka mąki
@@ -16,9 +16,20 @@
 - ulubiony olejek zapachowy - wanilia, migdał, cytryna
 - tłuszcz i kaszka manna (mąka) do wysmarowania formy
 
+- formka do babki gotowanej
+- garnek do którego zmieści sie forma i da się go przykryć
 
-### Przygotowanie
-- Margarynę ucieramy z cukrem, najlepiej przy pomocy makutry i kuli do ciasta, ale może być też zwykły mikser. Jeżeli wybierzecie mikser to miksujcie masę długo, tak żeby drobinki cukru były bardzo dobrze utarte, inaczej ciasto nie urośnie tak dobrze, jak by mogło. Utrzeć na jasną puszystą masę.
-- Dodać do masy żółtka jaj, sól i olej oraz przesiane obie mąki z proszkiem do pieczenia.
-- W osobnej misce ubijamy na sztywno pianę z białek i delikatnie łączymy ją z masą z pierwszej miski.
-- Formę do babki bardzo dokładnie smarujemy tłuszczem i obtaczamy w kaszce mannie (lub mące). Umieszczamy w niej ciasto, wyrównujemy i szczelnie zamykamy pokrywką. W garnku zagotowujemy wodę, tyle, aby po umieszczeniu formy woda sięgała do 3/4 wysokości formy. Najlepiej, aby w momencie wkładania formy do garnka wyłączyć gaz, żeby woda nie wrzała i nas nie poparzyła. Stabilizujemy formę..u mnie zajęło to chwilę, dopiero po przykryciu garnka pokrywką, forma się "uspokoiła". Moja babcia i mama miały duże garnki, więc na formę kładły polny kamień, dzięki czemu forma się nie przechylała. Babkę gotujemy przez 70 minut, po czym wyciągamy ostrożnie formę i pozostawamy do całkowitego ostygnięcia.
+## Przygotowanie
+- margaryne rozpuszczamy w mikrofali aby zrobiła się płynna lub prawie płynna.
+- margarynę ucieramy z cukrem
+- dodać do masy zółtka jaj a białko zostawić na poźniej, dodać także sól i olej oraz proszek do pieczenia.
+- dwie mąki przesiać przez sitko i dodać do masy
+- w osobnej misce obijamy pianę z białek na sztywno lub prawie sztywno po ubiciu dodajemy do masy
+- dodajemy olejek zapachowy
+- dopiero teraz mieszamy
+- formę smarujemy tłuszczem (może być tłuszcz który został na papierze/opakowaniu od margaryny) i obtaczamy kaszą manną lub mąką
+- wlewamy masę do formy i zamykamy
+- do garnka wlewamy wodę tak aby sięgała mniej więcej do połowy formy po jej włożeniu i wodę zagotowujemy
+- wkładamy formę do garnka i go przykrywamy, Powinnosię gotować na małym ogniu od godzine i 15 minut do półtorej godziny
+- formę wyciągamy z garnka, dopiero jak przestygnie forma to wyviągamy babkę delikatnie
+- babkę można posypać cukrem pudrem lub oblać polewą
