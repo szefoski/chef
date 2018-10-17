@@ -21,7 +21,7 @@
 * garnek do którego zmieści sie forma i da się go przykryć
 
 ## Przygotowanie:
-* margaryne rozpuszczamy w mikrofali aby zrobiła się płynna lub prawie płynna.
+* margaryne rozpuszczamy w mikrofali, aby zrobiła się płynna lub prawie płynna.
 * margarynę ucieramy z cukrem
 * dodać do masy zółtka jaj a białko zostawić na poźniej, dodać także sól i olej oraz proszek do pieczenia.
 * dwie mąki przesiać przez sitko i dodać do masy
