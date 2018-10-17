@@ -1,6 +1,6 @@
 ---
 
-![Alt text](https://bitbucket.org/repo/aEobdn/images/3444622964-babka2.jpg)
+![](http://www.tapenda.pl/obr/upl/wielkanocna_babka_gotowana.jpg)
 
 ---
 
