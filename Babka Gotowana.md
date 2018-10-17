@@ -31,6 +31,6 @@
 * formę smarujemy tłuszczem (może być tłuszcz który został na papierze/opakowaniu od margaryny) i obtaczamy kaszą manną lub mąką
 * wlewamy masę do formy i zamykamy
 * do garnka wlewamy wodę tak aby sięgała mniej więcej do połowy formy po jej włożeniu i wodę zagotowujemy
-* wkładamy formę do garnka i go przykrywamy, Powinnosię gotować na małym ogniu od godzine i 15 minut do półtorej godziny
+* wkładamy formę do garnka i go przykrywamy, Powinnosię gotować na małym ogniu od godziny i 15 minut do półtorej godziny
 * formę wyciągamy z garnka, dopiero jak przestygnie forma to wyviągamy babkę delikatnie
 * babkę można posypać cukrem pudrem lub oblać polewą
