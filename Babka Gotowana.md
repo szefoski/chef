@@ -16,7 +16,7 @@
 - ulubiony olejek zapachowy - wanilia, migdał, cytryna
 - tłuszcz i kaszka manna (mąka) do wysmarowania formy
 
-- formka do babki gotowanej
+- forma do do babki gotowanej ([przykłady](https://www.google.pl/search?q=forma+do+babki+gotowanej&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiSrui9oo7eAhWQhKYKHaq7B-AQ_AUIDigB&biw=1536&bih=768))
 - garnek do którego zmieści sie forma i da się go przykryć
 
 ## Przygotowanie
