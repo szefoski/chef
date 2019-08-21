@@ -62,3 +62,6 @@ https://www.youtube.com/watch?v=M7eJuwdxuBM
 Włożyć do piekarnika na godzine z zapaloną lampką.
 Po godzienie wyciągnąć i odgazować
 W
+
+
+https://www.youtube.com/watch?v=MV-Rrk1--6o
