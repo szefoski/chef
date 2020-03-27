@@ -1,3 +1,13 @@
+http://kasia.in/przepis/91.chleb-zytni-razowy-na-zakwasie
+http://kasia.in/przepis/677.okragly-chleb-pszenny-razowy-na-zakwasie
+### Chleb zytni na zakwasie żytnim
+* 250 zaczynu zytniego 720
+* 250 maki zytniej 720
+* 80 wody
+* sol
+
+
+
 ### Chleb pszenny razowy na zakwasie żytnim
 #### Zaczyn
 * 150g mąki pszennej typ 750
