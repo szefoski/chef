@@ -1,5 +1,12 @@
 - poledwica*, lopatka, szynka, schab wieprzowe 800 gram
-umyc i pokroic na kawalki
+- Margaryna Kasia 1/3 kostki
+- przyprawa do miesa wieprzowego lub dzuszonego lub do schabu
+- 2-3 cebule
+- 3-4 zabki czosnku
+- majranek
+- 5 marchwi nie duzych
+
+1. Mieso umyc i pokroic na kawalki
 
 do garnka margaryna do smazenia plynna, przykryc dno garnka. A jak nie ma to Kasie 1/3 kostki.
 jak sie roztopi i rozgrzeje to polozyc mieso i czekac zeby sie przyrumienilo mocno z obu stron
